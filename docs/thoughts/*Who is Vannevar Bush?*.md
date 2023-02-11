@@ -1,0 +1,2 @@
+Thoughts |
+Vannevar Bush was a scientist in 1945, and wrote this article in July that year. The atomic bomb was dropped on Japan in August of that year. I did a quick google search and learned that Dr Vannevar was apart of that event, and was an organizer of it's creation. He helped link Government, science, and industry, and lead the United States to victory in WWII. 

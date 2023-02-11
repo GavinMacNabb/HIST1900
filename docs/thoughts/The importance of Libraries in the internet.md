@@ -1,0 +1,2 @@
+Thoughts | 
+Libraries are an important tool in modern society as it passes information down for generations. The history of the internet goes back to before the internet when the library was the place to find all of this information. The wealth of knowledge a library offers to society is immense, and the Dewey Decimal System helped acceletate the access to that information. With this, the classifcation system was incorperated into modern virtual libraries and still maintains the same purpose. 

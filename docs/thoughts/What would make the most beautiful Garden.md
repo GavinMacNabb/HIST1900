@@ -1,0 +1,2 @@
+Thoughts | 
+What would be required of a program to be the most useful tool a person could have access too, similar to how useful a phone already is. Could an application with all the wealth of information you needed to know exist and flourished as a community? It begs the question how many of those places already exist and how could you build a community that isn't self centered.

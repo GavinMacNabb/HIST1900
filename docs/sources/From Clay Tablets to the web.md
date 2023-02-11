@@ -1,0 +1,2 @@
+Summary | *From Clay Tablets to the web* 
+In this paper, Shiv Kumar discusses the evolution and development of the library and how technology helped improve it. It introduces the two main concepts, classification and cataloguing information. Classification helps in arranging documents and catalogue helps in organizing, identifying, and locating the documents. It discusses the eveloution of the catalogue from clay tablets to web-based, and how technology influenced the continuous changes.
