@@ -1,0 +1,2 @@
+Thoughts | 
+Pythagoras and his followers has cultivated a belief of pythagoras which was devoted to mathematics. They believed in vegetarianism, and medicine helped to heal you and music healed your soul. Building a network that believed in themselves and the information they were cultivating would have a much greater stream of effect than something as self indulging as social media. How might the study of geometry and mathematics contribute to the relationships everything has and how can we replicate that better with technology

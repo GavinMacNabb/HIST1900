@@ -1,0 +1,2 @@
+Thoughts | *New Risk of Technology* 
+What really struck me is the way that social media is portrayed by the speaker. "socal media is an improved model for learning and research"... And used to sell your data! Comparing the mediums of knowledge in 1945 to what we had in 2015 is quite an astonishing feat, as before technology could modernize libraries of knowledge, wheras today it's mainly for entertainment and has risks. But how does the future ideas of warfare compare to 

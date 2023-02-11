@@ -1,0 +1,3 @@
+Thoughts | 
+I can imagine that having these tools for Vannevar would make everything he did incredibly simpler. Being someone who worked with so many different technologies, and knew so much having worked with so many different people from different fields, having a memex from him in this era would've been quiet and astounding piece of history. Infact, building a memex with his decisions would be a great way of tracking the scientific revolution during this part of history and how it compares to other countries, or the world. 
+source: http://www.doug-long.com/bush.htm

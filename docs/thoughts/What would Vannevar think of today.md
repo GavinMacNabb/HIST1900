@@ -1,0 +1,2 @@
+Thoughts | 
+I pondered the idea of what Vannevar might've thought he'd think of peoples use of technology be today, and what I can do as a software engineer to build ontop of his ideas. Imagining the network he had built with 6,000 scientists into a federated 'memex' like we have on the internet now would've streamlined his science so much more, but why isn't everyone doing that on the internet now? It begs the question if the largest social media platforms have anything important to contribute to society, or if we are even using the internet properly. 
